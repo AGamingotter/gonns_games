@@ -1,5 +1,1 @@
-Bluugames by Psygator
-BluuGames | @Psygator
-
-
-Dont steal without permission 
+Bluu games is still in dev 
